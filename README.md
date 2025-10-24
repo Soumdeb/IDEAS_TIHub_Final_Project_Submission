@@ -26,7 +26,7 @@ https://github.com/user-attachments/assets/0075998a-d5e7-4a27-9464-d505eeb8e6ab
 - Sales distribution insights
 
 ## 🏅 Certification
-[View Certificate](![SOUMYADEB NANDY](https://github.com/user-attachments/assets/67f0f95a-3cf1-4779-b441-b8b1edc2046f)
+(![SOUMYADEB NANDY](https://github.com/user-attachments/assets/67f0f95a-3cf1-4779-b441-b8b1edc2046f)
 
 
 ## Links 
